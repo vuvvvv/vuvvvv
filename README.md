@@ -6,7 +6,7 @@ You can connect with me professionally on <img src="https://upload.wikimedia.org
   **LinkedIn**:
 [www.linkedin.com/in/abdulaziz-vuvvv](https://www.linkedin.com/in/abdulaziz-vuvvv)
 
-For more casual communication, you can find me on   <img src="https://img.icons8.com/?size=100&id=KrtKMa6Fduil&format=png&color=000000"  width="50"> **Snapchat**:
+For more communication, you can find me on   <img src="https://img.icons8.com/?size=100&id=KrtKMa6Fduil&format=png&color=000000"  width="50"> **Snapchat**:
 [www.snapchat.com/@v.vuvv](https://www.snapchat.com/@v.vuvv)
 
 ```
